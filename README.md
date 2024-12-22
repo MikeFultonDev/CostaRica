@@ -11,7 +11,7 @@
 
 - [Other places](https://www.laidbacktrip.com/posts/costa-rica-best-places-to-visit)
   - [Corcovado National Park](https://en.wikipedia.org/wiki/Corcovado_National_Park)
-  - [Rio Celeste](https://duckduckgo.com/?t=ffab&q=rio+celeste&atb=v379-1&iaxm=maps)
+  - [Rio Celeste](https://costaricatravellife.com/rio-celeste-costa-rica/)
   - [Snorkeling and Diving](https://costaricadivers.com/travel-information/isla-del-cano-practical-tourist-information/) at Isla del Cano (probably too far south).
 
 - [Seven Day Itinerary](https://shesavesshetravels.com/travel-destinations/7-days-costa-rica-itinerary/)
