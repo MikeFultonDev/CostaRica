@@ -1,5 +1,7 @@
 # Costa Rica
 
+March 21st to 31st 2025 (roughly).
+
 ![map](images/map.png)
 
 - [Ten Day Itinerary](https://haleyblackall.com/10-day-costa-rica-itinerary/)
