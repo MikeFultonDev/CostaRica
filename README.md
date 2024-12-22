@@ -1,5 +1,7 @@
 # Costa Rica
 
+![map](images/map.png)
+
 - [Ten Day Itinerary](https://haleyblackall.com/10-day-costa-rica-itinerary/)
   - [La Fortuna](https://duckduckgo.com/?t=ffab&q=la+fortuna+costa+rica&atb=v379-1&iax=images&ia=images) is all about nature and wildlife. Waterfalls, hanging bridges, jungle treks, volcanoes, hot springs, sloths, chocolate
   - [Monteverde](https://duckduckgo.com/?q=monte+verde+costa+rica&t=ffab&atb=v379-1&iar=images&iax=images&ia=images) has the Cloud Forest, Zipline, Night Tour, coffee tour
