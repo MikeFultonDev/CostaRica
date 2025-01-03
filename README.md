@@ -1,8 +1,37 @@
 # Costa Rica
 
-March 21st to 31st 2025 (roughly).
-
+March 21st to 28th 2025.
 ![map](images/map.png)
+
+## Fly to San Jose Airport
+
+Departs 9:10
+
+- AC 34  YVR -> YYZ
+- AC 957 YYZ -> SJO
+
+Arrives 21:25
+
+Avis Car pick up at airport
+
+## La Fortuna and Monteverde Cloud Forest
+
+## Manuel Antonio Beach and Manuel Antonio National Park
+
+## Manuel Antonio to San Jose
+
+## Fly to Vancouver
+
+Departs 7:55
+
+- AC 956 SJO -> YYZ
+- AC  33 YYZ -> YVR
+
+Arrives 20:44
+
+## Reference
+
+- [Kayak Flight Search](https://www.ca.kayak.com/flights/YVR-SJO/2025-03-21/2025-03-28/4adults?ucs=1h32w47&sort=bestflight_a)
 
 - [Ten Day Itinerary](https://haleyblackall.com/10-day-costa-rica-itinerary/)
   - [La Fortuna](https://duckduckgo.com/?t=ffab&q=la+fortuna+costa+rica&atb=v379-1&iax=images&ia=images) is all about nature and wildlife. Waterfalls, hanging bridges, jungle treks, volcanoes, hot springs, sloths, chocolate
