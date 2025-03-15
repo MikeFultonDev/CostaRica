@@ -3,6 +3,8 @@
 March 21st to 28th 2025.
 ![map](images/map.png)
 
+[Costa Rica 2025 Shared Places Map](https://maps.app.goo.gl/LPYkgGG1tDVWX9kaA)
+
 ## March 21st
 
 - Fly to San Jose Airport (SJO), Costa Rica
@@ -10,15 +12,17 @@ March 21st to 28th 2025.
   - AC 34  YVR -> YYZ
   - AC 957 YYZ -> SJO
 - Arrives 21:25
-- Avis Car pick up at airport 
-- Stay at airport hotel in San Jose, Costa Rica
+- Avis Car pick up at [airport](https://www.google.com/maps/place/Avis+Airport+Juan+Santamar%C3%ADa+SJO/@9.9953748,-84.7766524,10z/data=!4m10!1m3!11m2!2sVU5CnCD1SYurEFNZZ_7s_A!3e3!3m5!1s0x8fa0f9534f25342b:0xd88f59c576a68042!8m2!3d9.9953748!4d-84.2163497!16s%2Fg%2F11hy_nfx9c?entry=ttu&g_ep=EgoyMDI1MDMxMi4wIKXMDSoASAFQAw%3D%3D)
+- Stay at [airport hotel](https://www.google.ca/maps/place/Condominio+Novatriana/@10.0042104,-84.2165678,17z/data=!4m14!1m7!3m6!1s0x8fa0f9022b4fac6f:0xc545930faff23d16!2sCondominio+Novatriana!8m2!3d10.0042051!4d-84.2139929!16s%2Fg%2F11k7jx86s2!3m5!1s0x8fa0f9022b4fac6f:0xc545930faff23d16!8m2!3d10.0042051!4d-84.2139929!16s%2Fg%2F11k7jx86s2?entry=ttu&g_ep=EgoyMDI1MDMxMi4wIKXMDSoASAFQAw%3D%3D)
+ : 901 Mountain Street Condominio Novatriana Unidad B2-6, Alajuela, Alajuela Province T1W 0C9, Costa Rica
 
 ## March 22nd
 
-- [Drive to La Fortuna](https://www.google.ca/maps/dir/Juan+Santamar%C3%ADa+International+Airport,+Alajuela+Province,+R%C3%ADo+Segundo,+Costa+Rica/Alajuela+Province,+La+Fortuna,+Costa+Rica/@10.2438912,-84.5616112,11z/data=!3m1!4b1!4m14!4m13!1m5!1m1!1s0x8fa0f9c450507873:0xb27b62220e3f31a4!2m2!1d-84.2047605!2d9.9981657!1m5!1m1!1s0x8fa00c890660e999:0x69e3a87bd2572ce6!2m2!1d-84.645415!2d10.4711965!3e0?entry=ttu&g_ep=EgoyMDI0MTIxMS4wIKXMDSoASAFQAw%3D%3D) 
+- Drive to [El Castillo Bungalow](https://www.google.com/maps/place/10%C2%B025'12.6%22N+84%C2%B045'17.2%22W/@10.4201763,-84.754774,17z/data=!3m1!4b1!4m4!3m3!8m2!3d10.4201763!4d-84.754774?entry=ttu&g_ep=EgoyMDI1MDMxMi4wIKXMDSoASAFQAw%3D%3D) : La Calle de Muca Provincia de Alajuela, El Castillo, Provincia de Alajuela, Costa Rica
   (about 2 1/2 hours)
-- Check-in to airbnb
-- [Arenal Volcano](https://maps.app.goo.gl/Z5jjPuPp1EL9qeYM7)
+- [Arenal Volcano Hiking](https://arenal1968.com/en/)
+- [Hot springs](https://maps.app.goo.gl/YpmiP6BxFkzGf8hHA)
+- hike and see [La Fortuna Waterfall](https://maps.app.goo.gl/xgGN4aeTMeuoNejH7)
 
 ## March 23rd, March 24th
 
@@ -26,30 +30,32 @@ La Fortuna / Monteverde Cloud Forest
 
 March 23:
 
-- [Monteverde Cloud Forest Biological Preserve](https://maps.app.goo.gl/7XiwVsr1zqXLLtyRA)
+- [Mistico Arenal Hanging Bridges](https://maps.app.goo.gl/h7HnAfnVd9xpQWtZA)
+- [Sky Adventures (zip line)](https://maps.app.goo.gl/UDAQYQydFhusA6WK7)
 
 March 24th:
 
-- [Sky Adventures (zip line)](https://maps.app.goo.gl/UDAQYQydFhusA6WK7)
 - [Rainforest Chocolate Tour](https://maps.app.goo.gl/7NumxRmghsB19HFZ7)
+- [Sloth's Territory](https://maps.app.goo.gl/cEP8A5xTau2i2yjn9) or [Sloth Tour](https://ecogardenarenal.com/tour/sloths-tour/)
 
 Other Things we could do:
 
 - [Parque Arenal Mundo Aventura (zip line)](https://maps.app.goo.gl/a1HFhWbzMkmxHY4f9)
-- [Mistico Arenal Hanging Bridges](https://maps.app.goo.gl/h7HnAfnVd9xpQWtZA)
 - [Arenal Rafting](https://maps.app.goo.gl/BaXgPwSBmAFQvbdR6)
 - [Fortuna Waterfall](https://maps.app.goo.gl/5duwahk7b7MECAeUA)
 
 ## March 25th
 
-- [Drive to Manuel Antonio Area](https://www.google.ca/maps/dir/Alajuela+Province,+La+Fortuna,+Costa+Rica/Puntarenas+Province,+Parrita,+Costa+Rica/@9.9996663,-84.8316769,10z/data=!3m1!4b1!4m14!4m13!1m5!1m1!1s0x8fa00c890660e999:0x69e3a87bd2572ce6!2m2!1d-84.645415!2d10.4711965!1m5!1m1!1s0x8fa1a1c97a54be3b:0x68699d4a0a2777ab!2m2!1d-84.3282606!2d9.5201874!3e0?entry=ttu&g_ep=EgoyMDI0MTIxMS4wIKXMDSoASAFQAw%3D%3D)
-  (about 4 hours)
-- [Night Tour](https://www.viator.com/tours/Quepos/Manuel-Antonio-Night-Tour/d4507-117127P3?mcid=54929&sv1=affiliate&sv_campaign_id=554853&awin_plat_id=11018&awc=11018_1735881593_e2dcb5d0c49003e8b1f9578ec2bc43d3&aid=awinUSDEEPLINK_554853)  
+- Drive to Monteverde Cloud Forest (3 hours)
+- [Monteverde Cloud Forest Biological Preserve](https://maps.app.goo.gl/7XiwVsr1zqXLLtyRA)
+- Drive to our airbnb in [Bejuco](https://www.google.com/maps/place/9%C2%B030'48.2%22N+84%C2%B025'09.6%22W/@9.5133944,-84.4193344,17z/data=!4m10!1m5!3m4!2zOcKwMzAnNDguMiJOIDg0wrAyNScwOS42Ilc!8m2!3d9.5133944!4d-84.4193344!3m3!8m2!3d9.5133944!4d-84.4193344?entry=ttu&g_ep=EgoyMDI1MDMxMi4wIKXMDSoASAFQAw%3D%3D0) : Bejuco Beach, Puntarenas Province, Costa Rica (3 hours)
+- Beach time!
 
 ## March 26th
 
 - [Sloth and Monkey Tour](https://www.viator.com/tours/La-Fortuna/Private-Sloth-and-Monkey-Wildlife-Tour/d821-472544P1)
 - [Manuel Antonio Beach](https://maps.app.goo.gl/kquyhJt2fLadJYrNA)
+- [Night Tour](https://www.viator.com/tours/Quepos/Manuel-Antonio-Night-Tour/d4507-117127P3?mcid=54929&sv1=affiliate&sv_campaign_id=554853&awin_plat_id=11018&awc=11018_1735881593_e2dcb5d0c49003e8b1f9578ec2bc43d3&aid=awinUSDEEPLINK_554853) (option 1) or [Mangrove Night Boat Tour](https://www.tripadvisor.ca/AttractionProductReview-g309289-d16873522-Mangrove_Boat_Tour_Damas_Island_Manuel_Antonio-Quepos_Province_of_Puntarenas.html) (option 2).
 
 Other things we could do:
 
@@ -63,7 +69,7 @@ Other things we could do:
 ## March 27th
 
 - [Nauyaca Waterfall](https://maps.app.goo.gl/yiryEvxT5EveNkCq5)
-- [Drive to Airport Hotel](https://www.google.ca/maps/dir/Manuel+Antonio,+Puntarenas+Province,+Quepos,+Costa+Rica/Juan+Santamar%C3%ADa+International+Airport,+Alajuela+Province,+R%C3%ADo+Segundo,+Costa+Rica/@9.7072562,-84.4035483,10z/data=!3m1!4b1!4m14!4m13!1m5!1m1!1s0x8fa1717d545f59c7:0x5b06296a6732bace!2m2!1d-84.1553848!2d9.4092624!1m5!1m1!1s0x8fa0f9c450507873:0xb27b62220e3f31a4!2m2!1d-84.2047605!2d9.9981657!3e0?entry=ttu&g_ep=EgoyMDI0MTIxMS4wIKXMDSoASAFQAw%3D%3D)
+- [Drive to Airport Hotel](https://www.google.com/maps/place/10%C2%B000'14.2%22N+84%C2%B012'50.3%22W/@10.0039528,-84.2139608,17z/data=!4m10!1m5!3m4!2zMTDCsDAwJzE0LjIiTiA4NMKwMTInNTAuMyJX!8m2!3d10.0039528!4d-84.2139608!3m3!8m2!3d10.0039528!4d-84.2139608?entry=ttu&g_ep=EgoyMDI1MDMxMi4wIKXMDSoASAFQAw%3D%3D) : 901 Mountain Street Condominio Novatriana Unidad B2-6, Alajuela, Alajuela Province T1W 0C9, Costa Rica
   (about 3 hours)
 - check in to hotel
 
