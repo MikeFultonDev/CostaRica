@@ -32,7 +32,7 @@ March 21st to 28th 2025.
 ## March 24th:
 
 - [Rainforest Chocolate Tour](https://maps.app.goo.gl/7NumxRmghsB19HFZ7)
-- [Sloth's Territory](https://maps.app.goo.gl/cEP8A5xTau2i2yjn9) or [Sloth Tour](https://ecogardenarenal.com/tour/sloths-tour/)
+- [Sloth's Territory](https://maps.app.goo.gl/cEP8A5xTau2i2yjn9)
 
 ## March 25th
 
@@ -45,7 +45,7 @@ March 21st to 28th 2025.
 
 - [Sloth and Monkey Tour](https://www.viator.com/tours/La-Fortuna/Private-Sloth-and-Monkey-Wildlife-Tour/d821-472544P1)
 - [Manuel Antonio Beach](https://maps.app.goo.gl/kquyhJt2fLadJYrNA)
-- [Night Tour](https://www.viator.com/tours/Quepos/Manuel-Antonio-Night-Tour/d4507-117127P3?mcid=54929&sv1=affiliate&sv_campaign_id=554853&awin_plat_id=11018&awc=11018_1735881593_e2dcb5d0c49003e8b1f9578ec2bc43d3&aid=awinUSDEEPLINK_554853) (option 1) or [Mangrove Night Boat Tour](https://www.tripadvisor.ca/AttractionProductReview-g309289-d16873522-Mangrove_Boat_Tour_Damas_Island_Manuel_Antonio-Quepos_Province_of_Puntarenas.html) (option 2).
+- [Mangrove Night Boat Tour](https://www.tripadvisor.ca/AttractionProductReview-g309289-d16873522-Mangrove_Boat_Tour_Damas_Island_Manuel_Antonio-Quepos_Province_of_Puntarenas.html)
 
 Other things we could do:
 
