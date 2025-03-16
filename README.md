@@ -24,25 +24,15 @@ March 21st to 28th 2025.
 - [Hot springs](https://maps.app.goo.gl/YpmiP6BxFkzGf8hHA)
 - hike and see [La Fortuna Waterfall](https://maps.app.goo.gl/xgGN4aeTMeuoNejH7)
 
-## March 23rd, March 24th
-
-La Fortuna / Monteverde Cloud Forest
-
-March 23:
+## March 23rd
 
 - [Mistico Arenal Hanging Bridges](https://maps.app.goo.gl/h7HnAfnVd9xpQWtZA)
 - [Sky Adventures (zip line)](https://maps.app.goo.gl/UDAQYQydFhusA6WK7)
 
-March 24th:
+## March 24th:
 
 - [Rainforest Chocolate Tour](https://maps.app.goo.gl/7NumxRmghsB19HFZ7)
 - [Sloth's Territory](https://maps.app.goo.gl/cEP8A5xTau2i2yjn9) or [Sloth Tour](https://ecogardenarenal.com/tour/sloths-tour/)
-
-Other Things we could do:
-
-- [Parque Arenal Mundo Aventura (zip line)](https://maps.app.goo.gl/a1HFhWbzMkmxHY4f9)
-- [Arenal Rafting](https://maps.app.goo.gl/BaXgPwSBmAFQvbdR6)
-- [Fortuna Waterfall](https://maps.app.goo.gl/5duwahk7b7MECAeUA)
 
 ## March 25th
 
@@ -59,16 +49,13 @@ Other Things we could do:
 
 Other things we could do:
 
-- [Top things to do in La Fortuna](https://www.viator.com/La-Fortuna/d821)
 - [Manuel Antonio National Park](https://www.viator.com/tours/Quepos/Manuel-Antonio-National-Park-PRIVATE-Excursion/d4507-45683P2?mcid=54929&sv1=affiliate&sv_campaign_id=554853&awin_plat_id=11018&awc=11018_1735880896_1c6cde8372cf9d0180cb6d7a1bbf57b4&aid=awinUSDEEPLINK_554853)
-- [Playa Las Gemelas Beach](https://maps.app.goo.gl/213y99y8zuBcVawM90)
-- [Manuel Antonio Zipline](https://maps.app.goo.gl/szjKv7MGUzeg7DdR9)
 - [Nature Walk](https://www.viator.com/tours/Quepos/Manuel-Antonio-Park-Nature-Guided-Tour/d4507-70025P2)
-- [White Water Rafting](https://maps.app.goo.gl/4cyyovwzKS8q4SUT6)
 
 ## March 27th
 
-- [Nauyaca Waterfall](https://maps.app.goo.gl/yiryEvxT5EveNkCq5)
+- [Nauyaca Waterfall](https://maps.app.goo.gl/yiryEvxT5EveNkCq5) (Optional)
+- [Playa Las Gemelas Beach](https://mapark.com/places-to-go/exploring-playa-las-gemelas-an-undiscovered-paradise-on-the-central-pacific-coast-of-costa-rica/) (snorkeling)
 - [Drive to Airport Hotel](https://www.google.com/maps/place/10%C2%B000'14.2%22N+84%C2%B012'50.3%22W/@10.0039528,-84.2139608,17z/data=!4m10!1m5!3m4!2zMTDCsDAwJzE0LjIiTiA4NMKwMTInNTAuMyJX!8m2!3d10.0039528!4d-84.2139608!3m3!8m2!3d10.0039528!4d-84.2139608?entry=ttu&g_ep=EgoyMDI1MDMxMi4wIKXMDSoASAFQAw%3D%3D) : 901 Mountain Street Condominio Novatriana Unidad B2-6, Alajuela, Alajuela Province T1W 0C9, Costa Rica
   (about 3 hours)
 - check in to hotel
